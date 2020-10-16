@@ -5,3 +5,4 @@ kinji furumoto after lunch
 2 ocklock
 readme-edit is editted
 editted on 15OCT2020
+2nd change on Friday
